@@ -6,5 +6,6 @@ And if you don't think that we can sing it faster then you're wrong
 But it'll help if you just sing along
 Bum, bum, buuum...
 Out in the forest, down by the river
-sound of water, smell of trees
-'round this campfire thanks for singing along 
+Sound of water, smell of trees
+I can garuntee with me we will get faster and faster
+Lets gather 'round this campfire and thanks for singing along 
